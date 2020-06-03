@@ -1,0 +1,1 @@
+Welcome to my journey through HNG 7 internship.
